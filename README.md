@@ -6,5 +6,6 @@ Ayrıca, Utka Ticaret adlı Instagram sayfamda yazılım, tasarım ve e-ticaret 
 
 📌 Instagram (Kişisel): @abdulkadiroztoprak
 📌 Instagram (İşletme): @utkaticaret
+ Instagram (İşletme): @utkayazilim_
 📌 LinkedIn: Abdulkadir Öztoprak
 
